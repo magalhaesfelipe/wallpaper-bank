@@ -1,1 +1,1 @@
-All my wallpapers.
+My wallpapers collection.
